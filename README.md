@@ -36,7 +36,7 @@ sʜᴇ/ʜᴇʀ+ᴀᴄᴇ <img width="20" height="20" alt="image" src="https://gi
 
 youtube: https://www.youtube.com/@Aminafklol
 
-strawpage (wip): https://btotheze.straw.page
+strawpage: https://aminaiscool.straw.page/
 
 tiktok: https://tiktok.com/totally_notamina
 
